@@ -1,1 +1,1 @@
-https://news.microsoft.com/pt-pt/2018/04/23/do-it-girls-reune-mais-100-alunas-microsoft/
+https://youtu.be/uByQnP5FsVY?si=IQkzzEVe1xdT8IXS
